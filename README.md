@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Gen AI Business development and consulting<br>I'm looking to collaborate on ML, DL,  and Gen AI open sources and business projects or ideas<br>I'm looking for help with advance Agentic AI workflow systems<br>I'm currently learning impact of Gen AI and AI Agents use cases in different market trends<br>Ask me about how Gen AI can be implemented in any brand or product idea<br>
+I'm currently working on Gen AI Business Development and Consulting<br>I'm looking to collaborate on ML, DL,  and Gen AI open sources and business projects or ideas<br>I'm looking for help with advance Agentic AI workflow systems<br>I'm currently learning impact of Gen AI and AI Agents use cases in different market trends<br>Ask me about how Gen AI can be implemented in any brand or product idea<br>
 
 
 ## 🌐 Socials:
